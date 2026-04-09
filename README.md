@@ -1,4 +1,3 @@
-Perfect bhai — I went through your PPT and now I’ll give you a **fully customized GitHub README** exactly matching your presentation (this will impress recruiters 💯).
 
 ---
 
